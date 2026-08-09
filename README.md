@@ -55,9 +55,10 @@ I enjoy transforming complex datasets into clear insights that can support **bet
 
 ### 🤝 Let's Connect
 
-💼 **LinkedIn:** [linkedin.com/in/danielsowah](https://www.linkedin.com/public-profile/settings/?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_self_edit_contact_info%3BjJVbtFuiSv2xNxRmGlqg4g%3D%3D)
 
-📧 **Email:**[ danielsowah190@gmail.com](mailto:YOUR-EMAIL@example.com)
+💼 **LinkedIn:** [danielsowah](https://linkedin.com/in/danielsowah)   
+📧 **Email:** [ danielsowah190@gmail.com](mailto:danielsowah190@gmail.com)
+ 
 
 ---
 
