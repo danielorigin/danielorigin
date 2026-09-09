@@ -57,7 +57,8 @@ I enjoy transforming complex datasets into clear insights that can support **bet
 
 
 💼 **LinkedIn:** [danielsowah](https://linkedin.com/in/danielsowah)   
-🐦 **Kaggle:** [danielsowah123](https://www.kaggle.com/danielsowah123)   
+🐦 **X:** [danielorigin_](https://x.com/danielorigin_)
+💻**Kaggle:** [danielsowah123](https://www.kaggle.com/danielsowah123)   
 📧 **Email:** [ danielsowah190@gmail.com](mailto:danielsowah190@gmail.com)
 
 
